@@ -1,4 +1,4 @@
-![image](https://github.com/Shizu-ka/bruvv/assets/58659139/b476b2ea-7078-4308-8a4b-43631fdba41e)## ProfileAcitivity
+## ProfileAcitivity
 
 ![image](https://github.com/Shizu-ka/bruvv/assets/58659139/30108276-cb88-457b-96ac-6c0b14ce08f1)
 ![image](https://github.com/Shizu-ka/bruvv/assets/58659139/5376a2f3-43ab-4d0c-9718-bd0808f88aba)
